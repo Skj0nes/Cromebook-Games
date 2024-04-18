@@ -1,1 +1,1 @@
-To access these games that are all unblocked on cromebooks go to https://docs.google.com/document/d/14_G8JzsDf7m16SOnyX065HJw3uYhGT9WjcKH6mNC0Cc/edit?usp=sharing
+This is a collection of unblocked games for exclusivly cromebooks, if you have any suggestions for more unblocked sites please To access these games that are all unblocked on cromebooks go to https://docs.google.com/document/d/14_G8JzsDf7m16SOnyX065HJw3uYhGT9WjcKH6mNC0Cc/edit?usp=sharing
